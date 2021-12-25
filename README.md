@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LittleOrange001
+- 👀 I’m interested in computer science, graphic designing, and technologies
+- 🌱 I’m currently learning coding by myself as an interest
+- 💞️ I’m looking to collaborate on coding
+- 📫 currently unavaliable for dm/contacting
